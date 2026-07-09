@@ -1,1 +1,1 @@
-# Clan-Fitness
+# Clan Fitness
